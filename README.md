@@ -74,6 +74,7 @@ More projects and case studies will be added as I ship.
 - [YouTube]https://www.youtube.com/@oyebodepreciousisaac
 - [Instagram]https://www.instagram.com/oyebodepreciousisaac
 - [TikTok]https://www.tiktok.com/@oyebodepreciousisaac
+- [Facebook]https://web.facebook.com/profile.php?id=100084948203652
 
 ---
 
